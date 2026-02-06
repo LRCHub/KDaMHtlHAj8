@@ -1,4 +1,4 @@
-# higma – ながいよる（feat. somunia）
+# higma – ながいよる（feat. miki）
 
 > **歌詞登録ステータス：プレーン歌詞のみ**
 
